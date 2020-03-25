@@ -1,4 +1,4 @@
-Orange Apple and KIWI no bannanas
+Orange Apple Kiwi and Bannanas
 
 
 # labTest01
